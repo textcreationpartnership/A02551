@@ -35,11 +35,22 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The hypocrite Set forth in a sermon at the court; February, 28. 1629. Being the third Sunday in Lent
+
+1. TO
+MY EVER
+moſt worthily honour'd
+Lord, the Earle of
+NORVVICH.
+
 #####Body#####
-The hypocrite Set forth in a sermon at the court; February, 28. 1629. Being the third Sunday in Lent
+
+1. THE
+HYPOCRITE.
+
 #####Back#####
-The hypocrite Set forth in a sermon at the court; February, 28. 1629. Being the third Sunday in Lent
+
+1. Errata.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
